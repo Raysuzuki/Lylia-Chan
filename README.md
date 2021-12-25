@@ -60,7 +60,6 @@
 ```
 
 ### Sc Lughbot3 (brpw)
-https://www.mediafire.com/file/sg7vildsi35wo56/Lughbot3.7z/file
 
 ### GRUP〽️
 <p align="center">
