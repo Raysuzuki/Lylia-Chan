@@ -59,8 +59,6 @@
 
 ```
 
-### Sc Lughbot3 (brpw)
-Lgi perbaikan
 
 ### GRUP〽️
 <p align="center">
